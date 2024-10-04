@@ -1,5 +1,7 @@
-## Venn "Diagrams" Wylder[^2] (Progressive Democrat for South Burlington Justice of the Peace)
+## Venn "Diagrams" Wylder[^2] (Progressive Democrat)
 [^2]: My name is Venn Sage Wylder. Some people call me Diagrams. [Let's break that down.](name.md)
+
+Nominated for Justice of the Peace in South Burlington by local Progressives and Democrats.
 ### Candidate Statement
 Growing up on a farm in the Green Mountains, I learned we only all get through hard times — be it mud season or, more recently, flood season — when we help each other. That’s what being a neighbor is about. But we’re likely to know a lot about each other’s business, so it’s best to mind our own and let each other be. That’s what our state motto—Freedom & Unity—is about. Help as best we can, and stay out of each other’s private affairs.
 
