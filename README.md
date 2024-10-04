@@ -36,4 +36,4 @@ One of the most consistent ways I show up is by making new connections, upsettin
 - Co-Chair, Chittenden County Committee of the VPP, 2023-2025.
 - Member, VPP State Coordinating Committee and various other VPP committees, 2023-2025.
 
-
+---
